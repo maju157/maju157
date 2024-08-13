@@ -1,3 +1,3 @@
 - 👋 eu sou a aluna Maria julia 
-- 👀 studo no colgio estaual civico militar gregorio seremeta .
+- 👀 estudo no colgio estaual civico militar gregorio seremeta .
 - 🌱 gosto  de passear e estudar
